@@ -23,8 +23,7 @@ Stay tuned for:
 ## 📫 Connect with Me
 
 - **Instagram:** [@flynnmaxwel](https://instagram.com/flynnmaxwel)
-- **Email:** your.email@example.com
-- **Portfolio Site:** [yourusername.github.io](https://yourusername.github.io)
+- **Email:** flynnmaxwel7@gmail.com
 
 ---
 
